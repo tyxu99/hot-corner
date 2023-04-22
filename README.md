@@ -1,0 +1,1 @@
+```win hot corner
